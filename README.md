@@ -1,0 +1,2 @@
+# proeqti
+vardisferi davaleba
